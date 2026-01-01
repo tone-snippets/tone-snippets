@@ -6,6 +6,8 @@ Neutral, höflich, unaufgeregt.
 Dieses Profil sammelt kleine, frei verfügbare Textbeispiele  
 – knapp, CH-kompatibel und sofort einsetzbar.
 
+---
+
 Hinweis:
 Eine kuratierte Sammlung ähnlicher Formulierungen (PDF, ohne Interaktion) existiert separat:
 
